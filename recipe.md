@@ -1,0 +1,2 @@
+Cut the onions into small pieces and mix it with the egg and toast.
+Then take a toasted bread then add sauce and and take the toasted egg and place it above the bread then cover it with another bread then eat it $
